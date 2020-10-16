@@ -1,4 +1,4 @@
-### — I'm Chandan Sarkar 👋
+### Oh hey — I'm Chandan Sarkar 👋
 
 Just another bearded, Evangelist working in Cisco Sytems having >14 years of Industry experience working with large Data Center and Telecom Networks 
 A Cisco Live Speaker, holds CCIE certification and other Industry certifications from Citrix, Extreme Networks, Nortel ERS, and Infoblox followed by VMware VCP on Datacentre Virtualization.
