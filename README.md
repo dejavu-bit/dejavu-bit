@@ -7,4 +7,4 @@ Travel and technology are my passions. Most of my time, I dedicate myself to lea
 
 The best part about being myself is learning all of the great new technologies, and working with a community of people who are all passionate about learning, and just generally being a part of a culture that values learning the way I do. I love sitting down and working through an involved or complex topic so that I can competently speak about it on public.
 
-And if that wasn’t enough to keep me busy — I’m also the father of 2 year old Reyansh.
+And if that wasn’t enough to keep me busy — I’m also the father of 4 year old Reyansh.
